@@ -10,14 +10,13 @@
 <b>whisper to interact</b> cause i'm usually offtab
 <br>it's better to whisper me anyway if you want anything
 <br><b>i'm cuddle/hide friendly,</b> love the company. the more the merrier
-<br>i'm usually on the personal tab, sorry if i miss your message
 <br><br>
 <b>my interets are</b>
 ultrakill, trigun, mob psycho, identity v, pokemon,
 <br>the mandela catalogue, scott pilgrim vs the world, jerma, creepypastas <a href="https://rentry.co/wolfwood_">+ more</a>
 <br><br><b>minors limit interaction with me</b>
 <br>+ i hide freely. i'll find out if i don't like you myself
-<br><br><i>here's <a href="https://vashwoods.straw.page">my strawpage</a> for more info</i>
+<br><br><i><a href="https://vashwoods.straw.page">my strawpage</a> for more info</i>
 <br>
 <br><i>Smile, Needle-noggin... It suits you when you do.</i>
 </p>
