@@ -18,6 +18,6 @@ ultrakill, trigun, mob psycho, identity v, pokemon,
 <br><br><b>minors limit interaction with me</b>
 <br>+ i hide freely. i'll find out if i don't like you myself
 <br><br><i>here's <a href="https://vashwoods.straw.page">my strawpage</a> for more info</i>
-<br> <br>
+<br>
 <br><i>Smile, Needle-noggin... It suits you when you do.</i>
 </p>
