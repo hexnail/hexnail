@@ -14,7 +14,7 @@
 <b>my interets are</b>
 ultrakill, trigun, mob psycho, identity v, pokemon,
 <br>the mandela catalogue, scott pilgrim vs the world, jerma, creepypastas <a href="https://rentry.co/wolfwood_">+ more</a>
-<br><br><b>minors limit interaction with me</b>
+<br><br><b>minors limit interaction with me</b> <i>(friends excluded)</i>
 <br>+ i hide freely. i'll find out if i don't like you myself
 <br><br><i><a href="https://vashwoods.straw.page">my strawpage</a> for more info</i>
 <br>
