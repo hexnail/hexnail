@@ -4,7 +4,7 @@
   <br><br><b>That is why after all was said and done, I wanted to share my tomorrows with him.</b>
   </p>
 <p align="center">
-  <b>wolfwood</b>/nicholas (<a href="https://en.pronouns.page/@vashwood-">+</a>) ♰ any prns ♰ 20 ♰ <a href="https://pronouns.cc/@punishercross">sys</a>host
+  <b>wolfwood</b>/nicholas (<a href="https://en.pronouns.page/@vashwood-">+</a>) ♰ any prns ♰ 20
   <br>not strict with how i'm addressed though
   <br><br>
 <b>whisper to interact</b> cause i'm usually offtab
