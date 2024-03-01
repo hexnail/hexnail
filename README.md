@@ -1,6 +1,6 @@
 # about-me
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1023514526181756989/1153185759487078480/image.png" width="520px">
+  <img src="https://i.imgur.com/XsxW7vE.jpeg" width="520px">
   <br><br><b>That is why after all was said and done, I wanted to share my tomorrows with him.</b>
   </p>
 <p align="center">
