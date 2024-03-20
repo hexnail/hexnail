@@ -13,7 +13,7 @@
 <br><br>
 <b>my interets are</b>
 ultrakill, trigun, resident evil, identity v, pokemon,
-<br>friday night funkin', scott pilgrim vs the world, jerma, creepypastas <a href="https://rentry.co/wolfwood_">+ more</a>
+<br>friday night funkin', scott pilgrim vs the world, jerma, creepypastas <a href="https://rentry.co/memriesofyou">+ more</a>
 <br><br><b>i'm usually in the safe server</b> <i>(i don't int first)</i>
   <br> inspo from my skins is fine, just don't impersonate me
 <br>+ i hide freely. i'll find out if i don't like you myself
