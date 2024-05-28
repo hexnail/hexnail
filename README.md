@@ -9,7 +9,7 @@
   <br>not strict with how i'm addressed, call me whatver you prefer
   <br><br>
 <b>whis2int</b> cause i'm usually offtab and on the personal tab
-<br>replies are late otherwise
+<br>replies are late otherwise, but don't expect a response from me
 <br><b>i'm cuddle/hide friendly,</b> i have a touch comfort. no need to ask
 <br><br>
 <b>my interets are</b>
