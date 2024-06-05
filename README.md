@@ -5,7 +5,7 @@
   <br><br> <img src="https://i.imgur.com/8E2Awky.png" width="300px">
   </p>
 <p align="center">
-  <b>compass</b>/nick (<a href="https://en.pronouns.page/@vashwood-">+</a>) <img src="https://64.media.tumblr.com/d563e0636285b3919ed8b477d9bbdcac/9a5e59d4a20102aa-6d/s75x75_c1/a514a5c93521064070370e2d5e814740c469827f.gif" width="10px"> any prns <img src="https://64.media.tumblr.com/d563e0636285b3919ed8b477d9bbdcac/9a5e59d4a20102aa-6d/s75x75_c1/a514a5c93521064070370e2d5e814740c469827f.gif" width="10px"> 20
+  <b>compass</b>/nick (<a href="https://en.pronouns.page/@eternality">+</a>) <img src="https://64.media.tumblr.com/d563e0636285b3919ed8b477d9bbdcac/9a5e59d4a20102aa-6d/s75x75_c1/a514a5c93521064070370e2d5e814740c469827f.gif" width="10px"> any prns <img src="https://64.media.tumblr.com/d563e0636285b3919ed8b477d9bbdcac/9a5e59d4a20102aa-6d/s75x75_c1/a514a5c93521064070370e2d5e814740c469827f.gif" width="10px"> 20
   <br>not strict with how i'm addressed, call me whatver you prefer
   <br><br>
 <b>whis2int</b> cause i'm usually offtab and on the personal tab
