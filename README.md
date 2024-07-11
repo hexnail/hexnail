@@ -19,7 +19,7 @@ ultrakill, trigun, project moon, identity v, pokemon,
   <br> inspo from my skins is fine, just don't impersonate me
 <br>+ i hide freely. i'll find out if i don't like you myself
 <br><br> i try to remember to update my status accordingly
-<br> online = on tab, away = offtab/afk, do not disturb = sleeping
+<br> online = on tab, away = offtab/afk, busy = sleeping/dniuc
 <br><br><i><a href="https://rentry.co/eg0bworder">rentry</a></i>
 <br>
 <br> <img src="https://64.media.tumblr.com/08486cbdb0db0ea2b87563108bb8b896/f2d8f79923d47eb0-3b/s2048x3072/23e690b6cf9e9dcbe03d08c3546e956f7eb6f9b4.pnj" width="600px">
