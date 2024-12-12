@@ -9,7 +9,7 @@
 <b>whisp2int</b> cause i'm usually offtab and on the personal tab
 <br>replies are late otherwise, but don't expect a response from me
 <br><b>i'm cuddle/hide friendly,</b> no need to ask
-<br><br><b>i'm usually with my boyfriend and friends,</b> <i>i don't int first</i>
+<br><br><b>i'm usually with my friends,</b> <i>i don't int first</i>
   <br> inspo from my skins is fine, just don't impersonate me
 <br>+ i hide freely. i'll find out if i don't like you myself
 <br><br> i try to remember to update my status accordingly
