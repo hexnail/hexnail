@@ -1,9 +1,9 @@
 # about-me
 <p align="center">
-  <img src="https://pbs.twimg.com/media/GiRUGIhXUAAwHY8?format=png&name=small" width="200px">
+  <img src="https://pbs.twimg.com/media/GiRUGIhXUAAwHY8?format=png&name=small" width="300px">
   </p>
 <p align="center">
-  <b>mafioso / squire</b> or whatever you know me as (<a href="https://en.pronouns.page/@eternality">+</a>) <img src="https://64.media.tumblr.com/90d9f79bba17c6a7d5ec5807749b65c1/4720c94c0b561795-f2/s75x75_c1/47191affd65b86c7ed2eeacb8842490b2e60c9ba.gifv" width="10px"> any prns <img src="https://64.media.tumblr.com/90d9f79bba17c6a7d5ec5807749b65c1/4720c94c0b561795-f2/s75x75_c1/47191affd65b86c7ed2eeacb8842490b2e60c9ba.gifv" width="10px"> 21
+  <b>mafioso / squire</b> or whatever you know me as (<a href="https://en.pronouns.page/@eternality">+</a>) <img src="https://64.media.tumblr.com/04166904be74fac9048ab8ea6df371fe/c6e913aea8c8a172-a7/s75x75_c1/c7266eb1061de8691cea96d2a7ab7a44080d68b6.gifv" width="10px"> any prns <img src="https://64.media.tumblr.com/04166904be74fac9048ab8ea6df371fe/c6e913aea8c8a172-a7/s75x75_c1/c7266eb1061de8691cea96d2a7ab7a44080d68b6.gifv" width="10px"> 21
   <br>not strict with how i'm addressed, call me whatver you prefer
   <br><br>
 <b>whisp2int</b> cause i'm usually offtab and on the personal tab
