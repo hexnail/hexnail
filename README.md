@@ -7,7 +7,7 @@
   <br>not strict with how i'm addressed, call me whatver you prefer
   <br><br>
 <b>whisp2int</b> cause i'm usually offtab and on the personal tab
-<br>replies are late otherwise, i'm very introverted
+<br>replies are late otherwise, i'm very shy
 <br><b>i'm cuddle/hide friendly,</b> no need to ask
 <br><br><b>i'm usually with my friends on 18+, roblox area on safe. </b> <i>i don't int first</i>
   <br> inspo from my skins is fine, just don't impersonate me
