@@ -1,4 +1,3 @@
-# about-me
 <p align="center">
   <img src="https://i.imgur.com/BidDNLA.png" width="300px">
   </p>
