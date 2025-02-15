@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.imgur.com/BidDNLA.png" width="300px">
+  <img src="https://i.imgur.com/BidDNLA.png" width="250px">
   </p>
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=dyingmall&label= sleepwalkers &color=2c2b27&style=plastic"> </p>
